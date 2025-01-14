@@ -21,7 +21,3 @@ işlerine gelen kelimelerde hala kullanıyorlar ama, mesela:
 - employee, refugee...
 
 ALLAH izin verirse bu depodaki 40 dk. 32 sn. 'lik ses kaydındaki Öz Yinelemeli 19 Arama Ağacı - Recursive 19 Search Tree algoritmasını kullanarak Kutsal Furkan Hikmet'teki 19 Mucizesi'ni detaylarıyla kelime ve türlü bileşenlerin sayımlarını açığa çıkaracağım. Önce depodaki nomnoml.com dosyasını arıtmam gerekiyor bunun için biraz ip ucu var depodaki mavi ekran görüntüsünde...
-
-Selam Üzerime Olsun,
-
-VE HAMD, ALEMLERİN RABBİ OLAN ALLAH'ADIR!
